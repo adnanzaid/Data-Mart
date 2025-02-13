@@ -53,7 +53,7 @@ Couples: 49%
 Families: 51%
 
 
-T### op Contributor to Retail Sales:
+### Top Contributor to Retail Sales:
 
 ### Retirees - Couples: ₹46,800
 
